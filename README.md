@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Canon!
+- 👋 Hi, I’m Drizzle!
 - 📫 Reach me at chukwujiobicanon@gmail.com
